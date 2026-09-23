@@ -6,7 +6,7 @@ Like I've never, ever known
 
 Just kiss me baby
 
-And tell me twice 
+Cette ligne vient de main
 
 That you're the one for me
 
